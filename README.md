@@ -2,7 +2,7 @@
 ## Orem Utah 2nd Stake
 ### Lehi 41st Ward (Tongan) Agendas
 
-* [Sacrament Program](https://github.com/bulawebops/fataha/blob/main/sacrament.md)
-* [Bishopric](https://github.com/bulawebops/fataha/blob/main/bishopric.md)
-* [Ward Council](https://github.com/bulawebops/fataha/blob/main/ward-council.md)
-* [Ward Youth Council](https://github.com/bulawebops/fataha/blob/main/youth-ward-council.md)
+* [Sacrament Program](https://github.com/fataha801/sacrament/blob/main/program.md)
+* [Bishopric](https://github.com/fataha801/sacrament/blob/main/bishopric.md)
+* [Ward Council](https://github.com/fataha801/sacrament/blob/main/wc.md)
+* [Ward Youth Council](https://github.com/fataha801/sacrament/blob/main/wyc.md)
