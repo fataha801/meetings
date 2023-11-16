@@ -6,7 +6,7 @@
 * __Conducting:__ Brother Mahe
 * __Opening Prayer:__ Elders Quorum
 * __Handbook Training:__ Ward Missionary Leader
-* __Minutes:__ Brother Dutta
+* __Minutes:__ Brother Dutta 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 
