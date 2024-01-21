@@ -1,18 +1,18 @@
 # Lehi 41st Ward (Tongan) Ward
 ## Youth Council Agenda
-### Sunday - November 19, 2023
+### Sunday - January 21, 2024
 
 * __Presiding:__ Bishop Faga
 * __Conducting:__ Fotu Moea'i Jnr
-* __Opening Prayer:__ Emeryn Aumoeualogo
-* __Handbook Training:__ Leila Paongo
+* __Opening Prayer:__ Tristan Faga
+* __Handbook Training:__ None
 * __Minutes:__ Brother Dutta
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 > __Purpose of this meeting:__ The purpose of the ward youth council is top help individuals build testimonies, receive saving ordinances, keep covenants, and become consecrated followers of Jesus Christ (Moroni 6:4-5).
 > 
-> __Youth Theme:__ "I can do all things through Christ which strengtheneth me." - Philippians 4:13
+> __Youth Theme:__ "I Am a Disciple of Jesus Christ"
 
 ### Key discussion points to consider:
 * Who hasn't been attending activities and church? why?
@@ -30,7 +30,7 @@
 * December Youth activity dates
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
-* __Closing Prayer:__ Helava'ia Faga
+* __Closing Prayer:__ Jacob Bowman
 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
