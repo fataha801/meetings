@@ -26,8 +26,6 @@
 * New visitors
 * Non-member friends
 * Ministering to one another - who isn't coming to church? why? anything we can help?
-* Ward Christmas Party
-* December Youth activity dates
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 * __Closing Prayer:__ Jacob Bowman
@@ -50,5 +48,3 @@
 | Stake Temple Tuesdays | Endowments session @ 8:30pm | 1st Tue. (Tongan) & 2nd Tue. (Samoan) |
 | Utah Food Bank | Thursdays @ 7:00pm | Volunteers arrived at 6:45am - 1149 N 300 W, Lehi UT 84043  |
 | Temple Baptisms (Black Friday) | Nov. 24th, Friday @ 6:00am | Arrive at the Mt. Timpanogas Temple lobby by 5:50am  |
-| Ice Skating | Nov. 30th, Thursday @ 7:00pm | Arrive at Skryidge Parking lot by 6:30pm. Bring $5 for admission  |
-| Ward Christmas Party | Dec. 8th - Fri. @ 6-9pm | Invite family and friends to our Ward Christmas Potluck  |
