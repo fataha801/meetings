@@ -8,7 +8,40 @@
 * __Handbook Training:__ Bishop Faga
 * __Minutes:__ Brother Dutta
 
+
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
+## New Members
+We have received the membership records for the following members who have moved into our ward. As we read your name, please stand and remain standing until all names have been read.
+
+- Orlando Aitofele
+
+All those who can join with the bishopric in welcoming these new members may manifest it by the uplifted hand.
+
+## Releases
+The following individuals is released from their following calling, and we propose that they be given a vote of thanks for their service.
+
++ Tristan Neiufi as Primary President
++ Ailua Aumoeualogo as Primary 1st Counselor
++ Vaunelle Kafatolu as Primary 2nd Counselor
++ Mya Balter as Primary Secretary
+
+Those who wish to express their appreciation may manifest it by the uplifted hand.
+
+## Sustainings
+The following individuals has been called to the following callings, and we propose that each of them be sustained. If they are here today to please stand and remain standing till their names is called.
+
++ Vaunelle Kafatolu as Primary President
++ Ailua Aumoeualogo as Primary 1st Counselor
++ Mya Balter as Primary 2nd Counselor
++ Kamalei Brown as Primary Secretary
+
+Those in favor may manifest it by the uplifted hand. [Pause briefly for the sustaining vote.]
+
+Those opposed, if any, may manifest it. [Pause briefly to allow for a dissenting vote, if any.]"
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
+
+
+
 
 > __Purpose of this meeting:__ Counsel together and make decisions about matters concerning the ward. Give special attention to the bishopric’s responsibility for Aaronic Priesthood holders and young women.
 
