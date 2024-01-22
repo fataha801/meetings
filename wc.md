@@ -1,5 +1,5 @@
 # Lehi 41st Ward (Tongan) Ward
-## Bishopric Agenda
+## Ward Council Agenda
 ### Sunday - 28th January, 2024
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 * __Presiding:__ Bishop Faga
