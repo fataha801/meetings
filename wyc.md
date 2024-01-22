@@ -1,6 +1,6 @@
 # Lehi 41st Ward (Tongan) Ward
 ## Youth Council Agenda
-### Sunday - January 21, 2024
+### Sunday - 21 st January, 2024
 
 * __Presiding:__ Bishop Faga
 * __Conducting:__ Fotu Moea'i Jnr
