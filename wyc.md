@@ -30,21 +30,9 @@
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 * __Closing Prayer:__ Jacob Bowman
 
-
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
-| Leadership | Member |
-|:------------- |:-------------|
-| YW President: | Sister Havili |
-| 15-18 year old YW President: | Tatiana Tupou |
-| 11-14 year old YW President: | Leila Paongo |
-| Deacons Quorum President: | Ronnie Movete Jnr |
-| Teachers Quorum President | Latu Moea'i |
-| Priest 1st Assistant: | Fotu Moea'i |
-
-
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 | Event | Dates/Time | Details  |
 |:------------- |:-------------|:-------------|
-| Stake Temple Tuesdays | Endowments session @ 8:30pm | 1st Tue. (Tongan) & 2nd Tue. (Samoan) |
-| Utah Food Bank | Thursdays @ 7:00pm | Volunteers arrived at 6:45am - 1149 N 300 W, Lehi UT 84043  |
-| Temple Baptisms (Black Friday) | Nov. 24th, Friday @ 6:00am | Arrive at the Mt. Timpanogas Temple lobby by 5:50am  |
+| Mutual Night | February 25, Thursday @ 7pm | Individual Quorum/Classes: Creating, updating and establishing LDS account and begin working on 41 names for the temple |
+| Worldwide Event for Youth | February 28, Sunday @ 7pm | Ward Youth will gather to watch this broadcast together - refreshments provided as per Stake Presidency request |
+| Temple Baptisms | February 10, Saturday @ 6:30am & 7:00am appointments | Arrive at the Mt. Timpanogas Temple lobby 30 mins before. Do not forget your temple recommends |
