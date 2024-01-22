@@ -44,4 +44,4 @@
 |:------------- |:-------------|:-------------|
 | Stake Temple Tuesdays | Endowments session @ 8:30pm | 1st Tue. (Tongan) & 2nd Tue. (Samoan) |
 | Utah Food Bank | Thursdays @ 7:00pm | Volunteers arrived at 6:45am - 1149 N 300 W, Lehi UT 84043  |
-| Ward Christmas Party | Friday @ 6-9pm | Invite family and friends to our Ward Christmas Potluck  |
+| Ward Potluck | Sunday, February 4th @ 430pm-6pm | Invite family and friends to come and share meals with one another  |
