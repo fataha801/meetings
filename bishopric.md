@@ -5,7 +5,7 @@
 * __Presiding:__ Bishop Faga
 * __Conducting:__ Brother Lauti
 * __Opening Prayer:__ Brother Havili
-* __Handbook Training:__ Bishop Faga
+* __Handbook Training:__ Bishop Faga 20. Activities, 20.2 Planning Activities, 20.2.1 Responsibility for Planning Activities, 20.2.2 Inviting All to Participate
 * __Minutes:__ Brother Dutta
   
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
