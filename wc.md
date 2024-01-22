@@ -1,12 +1,12 @@
 # Lehi 41st Ward (Tongan) Ward
-## Ward Council Agenda
-### Sunday - November 26, 2023
-
+## Bishopric Agenda
+### Sunday - 28th January, 2024
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 * __Presiding:__ Bishop Faga
-* __Conducting:__ Brother Mahe
-* __Opening Prayer:__ Elders Quorum
-* __Handbook Training:__ Ward Missionary Leader
-* __Minutes:__ Brother Dutta 
+* __Conducting:__ Brother Lauti
+* __Opening Prayer:__ Young Women President
+* __Handbook Training:__ Bishop Faga
+* __Minutes:__ Brother Dutta
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 
@@ -26,7 +26,7 @@
 * Uniting families for eternity. Reviewing the progress of members who are preparing to receive temple ordinances. Planning ways to help more members qualify for a temple recommend. Discussing ways members can participate in temple and family history work.
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
-* __Closing Prayer:__ Young Women President
+* __Closing Prayer:__ Primary President
 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
