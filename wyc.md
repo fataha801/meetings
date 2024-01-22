@@ -34,5 +34,10 @@
 | Event | Dates/Time | Details  |
 |:------------- |:-------------|:-------------|
 | Mutual Night | February 25, Thursday @ 7pm | Individual Quorum/Classes: Creating, updating and establishing LDS account and begin working on 41 names for the temple |
-| Worldwide Event for Youth | February 28, Sunday @ 7pm | Ward Youth will gather to watch this broadcast together - refreshments provided as per Stake Presidency request |
+| Worldwide Event for Youth | January 28, Sunday @ 7pm | Ward Youth will gather to watch this broadcast together - refreshments provided as per Stake Presidency request |
+| Ward Potluck | Sunday, February 4th @ 430pm-6pm | Invite family and friends to come and share meals with one another  |
 | Temple Baptisms | February 10, Saturday @ 6:30am & 7:00am appointments | Arrive at the Mt. Timpanogas Temple lobby 30 mins before. Do not forget your temple recommends |
+| Mutual Night | February 15, Thursday @ 7pm | No Mutual Night due to Stake Youth Dance |
+| Stake Youth Dance - Black & White Ball | February 17, Saturday @ 7pm-9:30pm | Black and White Ball Ettiquette |
+| Ward Youth Council Meeting | February 18, Sunday @ 10:30m-11:15pm | All Class and Quorum Presidencies attend |
+| Conference Week | February 19-25 | Week long activities / Stake with the Youth > Thursday - February 22 @ 7pm-8:30pm |
