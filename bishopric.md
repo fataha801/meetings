@@ -10,21 +10,23 @@
   
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 
-> __Purpose of this meeting:__ Counsel together and make decisions about matters concerning the ward. Give special attention to the bishopric’s responsibility for Aaronic Priesthood holders and young women.
+> __Purpose of this meeting:__ Counsel together and make decisions about matters concerning the ward. Give special attention to the bishopric’s responsibility for Aaronic Priesthood holders and young women
 
 ### God’s Work of Salvation and Exaltation
-* Living the gospel of Jesus Christ.
-* Caring for those in need.
-* Inviting all to receive the gospel.
-* Uniting families for eternity.
+* Living the gospel of Jesus Christ
+* Caring for those in need
+* Inviting all to receive the gospel
+* Uniting families for eternity
 
 ### Discussion
-* Coordinating God’s work of salvation and exaltation in the ward.
-* Strengthening individuals and families in the ward—especially youth and children.
-* Identifying members who could prepare to receive ordinances, including priesthood ordinations.
-* Identifying members to call to ward positions.
-* Identifying members who could be recommended to the stake president to serve as missionaries.
-* Reviewing instructions from the scriptures, Church leaders, and this handbook.
+* Coordinating God’s work of salvation and exaltation in the ward
+* Strengthening individuals and families in the ward—especially youth and children
+* Identifying members who could prepare to receive ordinances, including priesthood ordinations
+* Identifying members to call to ward positions
+* Identifying members who could be recommended to the stake president to serve as missionaries
+* Reviewing instructions from the scriptures, Church leaders, and this handbook
+* Sacrament Trash
+* Calendar Scheduling - remind families to clean building and take trash out
 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
