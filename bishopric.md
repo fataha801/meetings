@@ -1,12 +1,12 @@
 # Lehi 41st Ward (Tongan) Ward
 ## Bishopric Agenda
-### Sunday - 28th January, 2024
+### Sunday
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
-* __Presiding:__ Bishop Faga
-* __Conducting:__ Brother Lauti
-* __Opening Prayer:__ Brother Havili
-* __Handbook Training:__ Bishop Faga 20. Activities, 20.2 Planning Activities, 20.2.1 Responsibility for Planning Activities, 20.2.2 Inviting All to Participate
-* __Minutes:__ Brother Dutta
+* __Presiding:__ 
+* __Conducting:__ 
+* __Opening Prayer:__ 
+* __Handbook Training:__ 
+* __Minutes:__ 
   
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 
@@ -28,7 +28,7 @@
 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
-* __Closing Prayer:__ Brother Moea'i
+* __Closing Prayer:__ 
 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
@@ -36,4 +36,4 @@
 |:------------- |:-------------|:-------------|
 | Stake Temple Tuesdays | Endowments session @ 8:30pm | 1st Tue. (Tongan) & 2nd Tue. (Samoan) |
 | Utah Food Bank | Thursdays @ 7:00pm | Volunteers arrived at 6:45am - 1149 N 300 W, Lehi UT 84043  |
-| Ward Potluck | Sunday, February 4th @ 430pm-6pm | Invite family and friends to come and share meals with one another  |
+| Ward Potluck | 1st Sunday @ 430pm-6pm | Invite family and friends to come and share meals with one another  |
