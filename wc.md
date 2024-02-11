@@ -1,6 +1,5 @@
 # Lehi 41st Ward (Tongan) Ward
 ## Ward Council Agenda
-### Sunday  
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 * __Presiding:__  
 * __Conducting:__  
